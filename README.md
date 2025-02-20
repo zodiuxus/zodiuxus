@@ -9,7 +9,6 @@
 
 - ⚡ Fun fact **Centipedes almost never have exactly 100 legs**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
